@@ -1,2 +1,2 @@
-# solderungu.github.io
-Github Page Solderungu
+# idrislaode.github.io
+Github Page Idrislaode
